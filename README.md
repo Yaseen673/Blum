@@ -6,8 +6,8 @@
 
 Join our Telegram group to stay updated and get instructions on how to use this tool:
 
-- [Smart Airdrop](https://t.me/y.)
-- [Smart Airdrop - Channel](https://t.me/y.)
+- [y](https://t.me/y.)
+- [y - Channel](https://t.me/y.)
 
 ## 🌟 Features
 
